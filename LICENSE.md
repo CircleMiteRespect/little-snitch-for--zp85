@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Little Snitch for macOS helper with best Little Snitch for macOS Helper | password-generator + safe-browsing. Featuring password-generator and safe-browsing, it's
 
 
 
